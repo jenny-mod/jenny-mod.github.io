@@ -1,5 +1,3 @@
-# Download Jenny Mod for Minecraft
-
 Download Jenny Mod for Minecraft to get a ton of new features and options in the game. This mod adds a huge range of items and blocks to the game, as well as new mechanics that can change how you play. With Jenny Mod, you can create your own custom items and blocks, as well as set up your own rules for how the game should be played.
 
 ## [CLICK HERE TO DOWNLOAD](https://modmenuz.com/minecraft/jenny-mod/)
